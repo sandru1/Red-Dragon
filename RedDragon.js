@@ -1,4 +1,4 @@
-// K.Prabhasha
+// SANDRUWAN
 // ᴘᴏᴡᴇʀᴇᴅ ʙʏ ◉ ʀᴇᴅ-ᴅʀᴀɢᴏɴ-ʙᴏᴛ
 // last update 2022-07-17 (v 7.0)
 
